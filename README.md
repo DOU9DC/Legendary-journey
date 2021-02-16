@@ -1,3 +1,3 @@
 # Legendary-journey
 
-Step ONE
+STEP ONE
